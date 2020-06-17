@@ -1,0 +1,2 @@
+## KKKNNNBBB
+![かなぶん](..\kanabun.jpg)
